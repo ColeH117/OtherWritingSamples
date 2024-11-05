@@ -6,3 +6,4 @@
 - bylines at [Polygon dot com](https://www.polygon.com/authors/cole-henry)
 - byline at [IGN dot com](https://www.ign.com/articles/2018/12/28/batmans-psyche-is-perfectly-mirrored-in-the-gotham-of-arkham-knight)
 - [bylines at Paste Magazine](https://www.pastemagazine.com/search?q=cole+henry)
+- [bylines at BD](https://bloody-disgusting.com/author/cole-henry/)
